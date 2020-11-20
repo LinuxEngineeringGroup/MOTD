@@ -4,7 +4,8 @@
 
 [3MERGENCY: Trump a traitor after all?](http://beforeitsnews.com/prophecy/2020/11/richiefromboston-11192020-all-americans-must-get-covid-shot-in-first-24-hours-the-clock-is-ticking-2515702.html)
 [I want to believe in Trump but the facts are:
-"Operation Warp Speed" is his baby! 
+
+Fact: "Operation Warp Speed" is his baby! 
 
 Fact: the inventor of the PCR test Dr. Kary B Mullis in numerous videos through out the Internet publicly states the PCR IS NOT A DIAGNOSTIC TEST! And It is meaningless as a test for anything let alone Kung Flu. 
 
