@@ -3,7 +3,7 @@
 
 
 [3MERGENCY: Trump a traitor after all?](http://beforeitsnews.com/prophecy/2020/11/richiefromboston-11192020-all-americans-must-get-covid-shot-in-first-24-hours-the-clock-is-ticking-2515702.html)
-[I want to believe in Trump but the facts are:
+[I want to believe in Trump but the facts are as follows:
 
 Fact: "Operation Warp Speed" is his baby! 
 
