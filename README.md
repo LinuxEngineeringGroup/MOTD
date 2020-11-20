@@ -13,7 +13,7 @@ Fact: Wuhan virus was premeditated by Rothschild's and all of the Agenda 2021/20
 
 Fact: Trump is a huge proponent of 5G(Never listening to the global  consensus and his own American constituents who DON'T WANT A WEAPON deployed on us).
 
-Fact: Democide is the #1 killer of humans ever!
+Fact: Democide is the #1 killer of humans ever!!!
 
 I want to believe in Trump but these critical items lead me to a very dark place regarding his true intentions. 
 
